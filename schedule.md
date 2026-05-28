@@ -8,7 +8,7 @@ Training delivery schedule - Biweekly Tuesday 6 PM central, 30 minutes
 
 4 topics for sessions
 
-Marketing - Insta, titktok, youtube, x, linkedin
+Marketing - Insta, titktok, youtube, x, linkedin and promotional material
 
 
 
